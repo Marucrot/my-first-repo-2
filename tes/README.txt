@@ -1,0 +1,1 @@
+I love myself, and i never have suicidal thoughts

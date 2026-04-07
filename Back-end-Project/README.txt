@@ -1,1 +1,1 @@
-535250118
+DECO - 535250118git branch -d <branch_name>
